@@ -1,4 +1,4 @@
-# Hi, I'm Arun 👋
+# Hi, I'm Arun Joy 👋
 
 Welcome to my GitHub!
 
